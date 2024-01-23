@@ -1,1 +1,1 @@
-# windominos.github.io
+# windomino2024.github.io
